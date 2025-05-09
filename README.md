@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @FPSGAMEKILL
+- 👀 I’m interested in Discord
+- 🌱 I’m currently learning Discord Webhooks + Bots
+- 💞️ I’m looking to collaborate on basic discord Webhooks
+- 📫 How to reach me @fpsgamekill discord
+- 😄 Pronouns: He/Him/His
+- ⚡ Fun fact:  I'm Australian
